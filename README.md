@@ -20,3 +20,6 @@ Medium
 Strong
 
 **Screenshots**
+<a href="https://ibb.co/zR22V8R"><img src="https://i.ibb.co/MV11k8V/Screenshot-2024-10-02-at-12-05-23-PM.png" alt="Screenshot-2024-10-02-at-12-05-23-PM" border="0"></a>
+<br>
+
